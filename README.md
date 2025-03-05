@@ -19,9 +19,9 @@
 
 
 ## 📬 ติดต่อ
-[Tiktok](https://www.tiktok.com/@axiostq)
+[Ig]([https://www.instagram.com/tent.en1001ten?igsh=MXE1ODI3cmVpZnYyNw==])
 
 
 ---
 
-สร้างด้วย ❤️ โดย Axoistq
+สร้างด้วย ❤️ โดย tentepzaza
