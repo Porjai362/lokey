@@ -19,8 +19,7 @@
 
 
 ## 📬 ติดต่อ
-[Ig]([https://www.instagram.com/tent.en1001ten?igsh=MXE1ODI3cmVpZnYyNw==])
-
+[Ig] https://www.instagram.com/tent.en1001ten?igsh=MXE1ODI3cmVpZnYyNw==
 
 ---
 
